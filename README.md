@@ -1,1 +1,1 @@
-# mohithooda2006-cyber-QUIZ
+# QUIZ
